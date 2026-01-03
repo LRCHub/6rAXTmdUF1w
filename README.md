@@ -1,4 +1,4 @@
-# Radwimps – me me she (BACK TO THE LIVE HOUSE TOUR 2023 Live at Zepp Haneda(TOKYO) [2023/7/5])
+# RADWIMPS – me me she (BACK TO THE LIVE HOUSE TOUR 2023 Live at Zepp Haneda(TOKYO) [2023/7/5])
 
 > **歌詞登録ステータス：同期歌詞あり**
 
